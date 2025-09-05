@@ -3,8 +3,7 @@
 Le site **Movbor** est l’une des plateformes de streaming en ligne les plus populaires.  
 Si vous cherchez la nouvelle adresse officielle de Movbor en 2025, vous êtes au bon endroit.
 
-👉 Accédez directement à la nouvelle adresse de Movbor ici :  
-[Movbor.com](https://tech-astuce.com/movbor/)
+👉 Accédez directement à la nouvelle adresse de Movbor ici : [Movbor.com](https://tech-astuce.com/movbor/)
 
 [![Movbor.com](https://tech-astuce.com/wp-content/uploads/2025/08/movbor.com_.png)](https://tech-astuce.com/movbor/)
 
